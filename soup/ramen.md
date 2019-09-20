@@ -40,3 +40,13 @@ Partly based on [fox and briar recipe](https://www.foxandbriar.com/easy-chicken-
 ## Results
 
 Pretty good, a bit on the sour/vinegar side, worcestershire and vinegar could be toned down a bit.  Wish it was sweeter, maybe more sugar, or some fish sauce or fish flakes?  No spice, could add sriracha or chili powder.  Could have more onions too.  Overcooked chicken slightly, should just finish cooking it on the stove and then just throw it in at the end, instead I boiled it for a couple minutes.  Eggs were perfect.
+
+## Ideas
+
+- mirin
+- sriracha
+- fish flakes
+- fish/oyster sauce
+- [braised pork](https://japan.recipetineats.com/yakibuta-braised-pork/)
+- baking soda in noodle water???
+

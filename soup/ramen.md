@@ -41,6 +41,10 @@ Partly based on [fox and briar recipe](https://www.foxandbriar.com/easy-chicken-
 
 Pretty good, a bit on the sour/vinegar side, worcestershire and vinegar could be toned down a bit.  Wish it was sweeter, maybe more sugar, or some fish sauce or fish flakes?  No spice, could add sriracha or chili powder.  Could have more onions too.  Overcooked chicken slightly, should just finish cooking it on the stove and then just throw it in at the end, instead I boiled it for a couple minutes.  Eggs were perfect.
 
+## Results 2
+
+Even better.  Used my own chicken stock reduced from leftover rotisserie chicken.  Used slightly less worcestershire and vinegar.  The stock wasn't as salty, so didn't need to cut with water (actually probably too much water when making the stock).  Added a couple shakes of cayenne pepper.  Didn't have much chicken, just leftovers from rotisserie.  Used lo mein noodles, probably prefer the udon.  
+
 ## Ideas
 
 - mirin

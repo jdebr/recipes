@@ -7,12 +7,12 @@ Partly based on [fox and briar recipe](https://www.foxandbriar.com/easy-chicken-
 - noodles (used japanese udon)
 - eggs
 - chicken breast **about a pound**
-- chicken stock (low sodium) **4 cups**
-- rice vinegar  **1/4 cup**
-- soy sauce **1/2 cup**
+- chicken or miso stock **4 cups**
+- rice or black vinegar  **1/8 cup**
+- soy sauce **1/4 cup**
 - garlic **5 cloves**
 - ginger **1 chonk**
-- worcestershire sauce **2 Tbsp**
+- worcestershire sauce **1 Tbsp**
 - mushrooms **a pack**
 - yellow onion **1/2**
 - carrots **like 5**
@@ -21,6 +21,7 @@ Partly based on [fox and briar recipe](https://www.foxandbriar.com/easy-chicken-
 - sesame oil **a bit**
 - spinach **couple handfuls**
 - sugar **a pinch, maybe 1.5 tsp**
+- bay leaf **optional**
 - sesame seeds
 
 ## Instructions
@@ -44,6 +45,10 @@ Pretty good, a bit on the sour/vinegar side, worcestershire and vinegar could be
 ## Results 2
 
 Even better.  Used my own chicken stock reduced from leftover rotisserie chicken.  Used slightly less worcestershire and vinegar.  The stock wasn't as salty, so didn't need to cut with water (actually probably too much water when making the stock).  Added a couple shakes of cayenne pepper.  Didn't have much chicken, just leftovers from rotisserie.  Used lo mein noodles, probably prefer the udon.  
+
+## Results 3
+
+Used leftover thanksgiving turkey, miso soup broth instead of chicken, black vinegar instead of rice.  No mushrooms or cilantro.  Cut vinegar, soy, and worcestershire in half.  Thought it turned out much better than before - better balance of sweet and salty for my taste.  My favorite version so far.  
 
 ## Ideas
 
